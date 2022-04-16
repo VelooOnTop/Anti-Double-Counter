@@ -6,5 +6,5 @@ Download the release and run the file, then insert the verification link sent by
 Enjoy :P
 
 To contact me: 
-- Discord ImGqbbo#8568/https://discord.gg/TwVVfG6CA5
+- Discord ImGqbbo#9549
 - Telegram https://t.me/ImGqbbo
